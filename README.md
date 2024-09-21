@@ -9,4 +9,3 @@ I Started studying Computer Science in 2020 and here i will bring all my project
 - 💩 Actual Shitposter.
 
 
-![ezgif com-animated-gif-maker](https://github.com/user-attachments/assets/85a6149c-5e48-4c5c-a7d9-03d71b258127)
